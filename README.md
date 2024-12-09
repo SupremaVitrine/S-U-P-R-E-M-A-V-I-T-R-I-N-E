@@ -1,1 +1,1 @@
-# S-U-P-R-E-M-A-V-I-T-R-I-N-E
+# SUPREMAVITRINE
